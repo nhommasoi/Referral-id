@@ -16,7 +16,7 @@ The **Binance referral code 59774590** is a promo code that offers **discounted 
 
 The code is part of Binance's global referral program, which benefits both the inviter and the invitee. Best of all, **it's completely free to use**.
 
-➡️ [**Visit Binance and Sign Up**](https://www.binance.com)
+➡️ [**Visit Binance and Sign Up**](https://www.binance.com/join?ref=59774590)
 
 ---
 
@@ -53,7 +53,7 @@ Referral users get early or better access to passive income products like:
 ## 📝 How to Use the Binance Referral Code (Step-by-Step)
 
 1. **Visit Binance**  
-   Go to [https://www.binance.com](https://www.binance.com)
+   Go to [https://www.binance.com](https://www.binance.com/join?ref=59774590)
 
 2. **Start Registration**  
    Choose email or phone number to create your account.
@@ -149,5 +149,5 @@ Using **Binance referral code 59774590** gives you a head start in crypto tradin
 Binance continues to lead with security, innovation, and user-centric features.  
 **Register today, enter the code, and elevate your crypto experience.**
 
-👉 [**Start Trading on Binance Now**](https://www.binance.com)  
+👉 [**Start Trading on Binance Now**](https://www.binance.com/join?ref=59774590)  
 🔑 **Referral Code: 59774590**
